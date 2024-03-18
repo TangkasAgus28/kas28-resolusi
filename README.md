@@ -1,0 +1,1 @@
+# kas28-resolusi
